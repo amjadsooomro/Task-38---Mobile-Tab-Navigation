@@ -1,1 +1,1 @@
-https://mystifying-mccarthy-cdb37f.netlify.app
+https://optimistic-mirzakhani-2e7708.netlify.app
